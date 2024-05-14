@@ -1,0 +1,1 @@
+rasmni assets ni ichiga joylanglar
